@@ -1,1 +1,1 @@
-# .github
+# FOR THE BETTER FUTURE!
